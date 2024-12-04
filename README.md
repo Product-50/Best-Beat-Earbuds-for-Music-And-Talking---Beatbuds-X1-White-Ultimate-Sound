@@ -4,7 +4,7 @@
 <meta charset="utf-8"/>
 <meta content="width=device-width, initial-scale=1.0" name="viewport"/>
 <meta content="Looking for the Best Beat Earbuds for Music And Talking? Discover why Beatbuds-X1-White is your perfect choice with supreme audio quality, easy usage, and long battery life." name="description"/>
-<title>Best Beat Earbuds for Music And Talking - Beatbuds-X1-White</title>
+Best Beat Earbuds for Music And Talking - Beatbuds-X1-White
 </head>
 <body>
 <header>
